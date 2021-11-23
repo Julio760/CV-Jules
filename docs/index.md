@@ -1,5 +1,5 @@
 # CV LEFORT JULES
-- ELEVE UNILASALLE PREMIERE ANNEE CYCLE PRE-INGENIEUR | 24 RUE COURBE, 76810 LUNERAY / 07 61 36 93 14 .
+- ELEVE UNILASALLE DEUXIEME ANNEE CYCLE PRE-INGENIEUR | 24 RUE COURBE, 76810 LUNERAY / 07 61 36 93 14 .
 ![JulesLefort](Photo/matete.jpg "Jules")
 ## OBJECTIF
 - J’ai l’espoir d’apprendre le plus possible et de pouvoir acquérir un panel enrichissant de connaissances afin de m’épanouir et de développer mon savoir agronomique et scientifique.
